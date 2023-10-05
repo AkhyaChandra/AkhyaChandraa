@@ -1,2 +1,0 @@
-# AkhyaChandraa
-My portfolio
